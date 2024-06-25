@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Science**
 
-- 📫 How to reach me **vishalgoswami49363@gmail.comom**
+- 📫 How to reach me **vishalgoswami49363@gmail.com**
 
 - ⚡ Fun fact **I am weird**
 
