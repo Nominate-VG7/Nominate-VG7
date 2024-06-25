@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-<h1 align="center">Hi 👋, I'm Nominate VG7</h1>
+<h1 align="center">Hi, I'm Nominate VG7</h1>
 <h3 align="center">am gonna explode who they envy</h3>
 
 <p align="left"> <img src="https://komarev.com/ghpvc/?username=nominate-vg7&label=Profile%20views&color=0e75b6&style=flat" alt="nominate-vg7" /> </p>
