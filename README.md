@@ -1,6 +1,6 @@
 
 <h1 align="center">Hi 👋, I'm Nominate VG7</h1>
-<h3 align="center">Just a beginner</h3>
+<h3 align="center"></h3>
 
 - 💬 Ask me about **Science**
 
