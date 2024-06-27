@@ -6,7 +6,7 @@
 
 - 📫 How to reach me **vishalgoswami49363@gmail.comom**
 
-- ⚡ Fun fact **idk**
+- ⚡ Fun fact **bye**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
